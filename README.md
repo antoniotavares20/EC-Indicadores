@@ -1,0 +1,2 @@
+# EC-Indicadores
+Economia Circular (EC) é uma estratégia que pode ser aplicada em diversos contextos organizacionais. Contribui para que as metas de sustentabilidade sejam atigidas. Aplica recursos e estatégias que proporcionam resultados tangíveis por meio dos príncipios dos 3R's(Reduzir, Reútilizar e Reciclar). A comunidade ativa,  descrevem com mais detalhes a EC [https://www.ellenmacarthurfoundation.org/]
